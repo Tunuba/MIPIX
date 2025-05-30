@@ -1,2 +1,0 @@
-# MIPIX
-Retro videogames top
